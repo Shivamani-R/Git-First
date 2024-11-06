@@ -2,7 +2,7 @@ SHIVAMANI R
 Bengaluru , Karnataka , India.
 shivamanirshivamanir@gmail.com
 6364611059
-![alt text](https://media.istockphoto.com/id/177427917/photo/close-up-of-red-cricket-ball-and-bat-sitting-on-grass.jpg?s=612x612&w=0&k=20&c=DcorerbBUeDNTfld3OclgHxCty4jih2yDCzipffX6zw=)		
+![alt text](https://pratidhvani.com/wp-content/uploads/2024/07/WhatsApp-Image-2024-07-04-at-3.13.45-PM.jpeg)		
 Objective	Computer science graduate skilled in Data Structures and Algorithms, HTML, CSS, JavaScript, and Operating Systems. Seeking to apply my technical expertise and problem-solving abilities in a challenging role where I can contribute to innovative projects and further develop my skills in a collaborative environment.
 		
 Skills & Abilities:-
