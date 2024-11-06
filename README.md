@@ -6,7 +6,7 @@ shivamanirshivamanir@gmail.com
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-Computer science graduate skilled in Data Structures and Algorithms, HTML, CSS, JavaScript, and Operating Systems. Seeking to apply my technical expertise and problem-solving abilities in a challenging role where I can contribute to innovative projects and further develop my skills in a collaborative environment.
+Computer science graduate skilled in Data Structures and Algorithms, HTML, CSS, JavaScript, and Operating Systems. Seeking to apply my technical expertise and problem-solving abilities in a challenging role where I can contribute to innovative projects and further develop my skills in a collaborative environment. 
 		
 Skills & Abilities:-
 Data Structures and Algorithms 
